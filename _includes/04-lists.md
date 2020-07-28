@@ -1,2 +1,2 @@
-No favorite book in particular
-No favorite place or any activity in general
+- Browsing threads or forums
+- No favorite books or or any places in general
