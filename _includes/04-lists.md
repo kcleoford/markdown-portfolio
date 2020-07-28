@@ -1,0 +1,2 @@
+- Browsing threads or forums
+- No favorite books or or any places in general
